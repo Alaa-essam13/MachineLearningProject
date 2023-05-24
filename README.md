@@ -1,0 +1,6 @@
+# MachineLearningProject![66](https://github.com/Alaa-essam13/MachineLearningProject/assets/97319021/1c79ed7c-fe65-4801-a45a-77e03f1f0924)
+![pp](https://github.com/Alaa-essam13/MachineLearningProject/assets/97319021/c156ba1b-ee1e-4ed6-aab8-f9cfe90a7dc6)
+![pca](https://github.com/Alaa-essam13/MachineLearningProject/assets/97319021/0ee67987-d044-4f61-b928-3a2faddf0db7)
+![88](https://github.com/Alaa-essam13/MachineLearningProject/assets/97319021/11020023-36d3-4ebc-aea1-de2643746c20)
+![555555](https://github.com/Alaa-essam13/MachineLearningProject/assets/97319021/9c91346c-dd26-4d07-b466-6a0c0b558132)
+![mnkm](https://github.com/Alaa-essam13/MachineLearningProject/assets/97319021/bb0acaa1-8655-4253-8cff-ae869348f12d)
